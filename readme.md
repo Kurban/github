@@ -1,1 +1,1 @@
-hyhytttjyujtyutyukikyuyhhj
+Kurban Ibraimov 
